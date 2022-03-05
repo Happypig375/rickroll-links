@@ -40,7 +40,7 @@ Juicy rickroll links
 - [https://youtu.be/ikFZLI4HLpQ](https://youtu.be/ikFZLI4HLpQ) - Building Demolition \*gone wrong\*
 - [https://youtu.be/Y5zbaF097lQ](https://youtu.be/Y5zbaF097lQ) - Whats inside the FNaF box?
 - [https://youtu.be/hNfDNORPU4Y](https://youtu.be/hNfDNORPU4Y) - A dog song [Borkrica [Toto]]
-- [https://youtu.be/-ioFOx_pE6w](https://youtu.be/-ioFOx_pE6w) - Fortnite *NEW* OP SKIN!!!! 😳
+- [https://youtu.be/-ioFOx_pE6w](https://youtu.be/-ioFOx_pE6w) - Fortnite \*NEW\* OP SKIN!!!! 😳
 - [https://youtu.be/tXzng395qq0](https://youtu.be/tXzng395qq0) - Best Video Ever
 - [https://youtu.be/5U4R6fW-P0s](https://youtu.be/5U4R6fW-P0s) - Beat Saber || Overkill 360° by Riot (Expert+) First Attempt + Full Combo || Mixed Reality
 - [https://youtu.be/J_DsOPcPiR0](https://youtu.be/J_DsOPcPiR0) - What happens when system year is more than 9999
