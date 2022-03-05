@@ -10,7 +10,8 @@ Juicy rickroll links
 - [https://riverside.rocks/index.php](https://riverside.rocks/index.php) - it redirects you to the offical music video.
 - [discord.yonle.repl.co](https://discord.yonle.repl.co) - A page that lookin like Discord, but SUS.
 - [kavin.rocks](http://kavin.rocks/) - idk if this will stay forever but it looks like a personal website.
-- [http://free-downloads.glitch.me/](http://free-downloads.glitch.me/) - you can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.  
+- [http://free-downloads.glitch.me/](http://free-downloads.glitch.me/) - you can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.
+- [https://stelloio.herokuapp.com/*](https://stelloio.herokuapp.com/*) - Fake URL shortener that just rick rolls.
 
 ## Raw Video
 - [fwesh.yonle.repl.co/*](https://fwesh.yonle.repl.co) - It gives Rickroll raw video than redirect you to Youtube Video. Also works on discord or anywhere.
