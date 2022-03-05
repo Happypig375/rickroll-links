@@ -23,7 +23,8 @@ Juicy rickroll links
 - https://tenor.com/view/dance-moves-dancing-singer-groovy-gif-17029825
 
 ## Discord rickroll
-- [https://l.discord.ski/yWIf5EPzBZmHLa8B](https://l.discord.ski/yWIf5EPzBZmHLa8B) - Discord.ski Nitro {Only this works currently}
+- [https://l.discord.ski/yWIf5EPzBZmHLa8B](https://l.discord.ski/yWIf5EPzBZmHLa8B) - Discord.ski Nitro {Works}
+- [https://news.rr.nihalnavath.com/posts/Nitro-b098204c](https://news.rr.nihalnavath.com/posts/Nitro-b098204c) - Nitro, expires in 48 hours. {Works}
 - [https://dlscord.life/w3B3zEh6XDYjXv0C](https://dlscord.life/w3B3zEh6XDYjXv0C) - Dlscord.life Nitro {Blocked by Discord}
 - [https://discordgift.site/iOexGcPHoRzqCBuP](https://discordgift.site/iOexGcPHoRzqCBuP) - Discord Nitro {Blocked by Discord}
 - [https://discordgift.site/c/JN1LXblZpWe59NSW](https://discordgift.site/c/JN1LXblZpWe59NSW) - Discord Nitro Classic {Blocked by Discord}
