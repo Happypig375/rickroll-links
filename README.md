@@ -13,6 +13,9 @@ Juicy rickroll links
 - [http://free-downloads.glitch.me/](http://free-downloads.glitch.me/) - you can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.
 - [https://stelloio.herokuapp.com/*](https://stelloio.herokuapp.com/*) - Fake URL shortener that just rick rolls.
 
+## Custom rick generators
+- [https://news.rr.nihalnavath.com](https://news.rr.nihalnavath.com) - Generate your own Rick embedded URLs.
+
 ## Raw Video
 - [fwesh.yonle.repl.co/*](https://fwesh.yonle.repl.co) - It gives Rickroll raw video than redirect you to Youtube Video. Also works on discord or anywhere.
 
