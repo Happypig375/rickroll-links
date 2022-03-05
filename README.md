@@ -53,10 +53,45 @@ Juicy rickroll links
 - [https://youtu.be/eBsIpefmXvE](https://youtu.be/eBsIpefmXvE) - Secret - Super Mario Maker
 - [https://youtu.be/-51AfyMqnpI](https://youtu.be/-51AfyMqnpI) - cute dog :D
 - [https://youtu.be/HPk-VhRjNI8](https://youtu.be/HPk-VhRjNI8) - How to make a good regiment!
+- [https://youtu.be/6mhmcwmgWbA](https://youtu.be/6mhmcwmgWbA) - Watch How This Bear Made The Unlikeliest Of Friends
+- [https://youtu.be/H01BwSD9eyQ](https://youtu.be/H01BwSD9eyQ) - Undertale - Megalovania??
+- [https://youtu.be/wzSVOcgKq04](https://youtu.be/wzSVOcgKq04) - BarackRoll
+- [https://youtu.be/Uj1ykZWtPYI](https://youtu.be/Uj1ykZWtPYI) - R2D2's secret message
+- [https://youtu.be/0SoNH07Slj0](https://youtu.be/0SoNH07Slj0) - Paul the jellyfish`s story
+- [https://youtu.be/dPmZqsQNzGA](https://youtu.be/dPmZqsQNzGA) - Coldplay - True Love [new album Ghost Stories song]
+- [https://youtu.be/nHRbZW097Uk](https://youtu.be/nHRbZW097Uk) - HIDDEN MESSAGE in song played backwards!
 
-## Youtube rickroll [undisguised]
+## Youtube rickroll [undisguised aka containing "Rick" or "Never gonna"]
 - [https://youtu.be/dQw4w9WgXcQ](https://youtu.be/dQw4w9WgXcQ) - Rick Astley - Never Gonna Give You Up (Official Music Video)
 - [https://youtu.be/2ocykBzWDiM](https://youtu.be/2ocykBzWDiM) - Rick Astley - Never Gonna Give You Up (Remastered 4K 60 FPS)
 - [https://youtu.be/oHg5SJYRHA0](https://youtu.be/oHg5SJYRHA0) - RickRoll'D
 - [https://youtu.be/cvh0nX08nRw](https://youtu.be/cvh0nX08nRw) - rickroll, but it never starts
 - [https://youtu.be/6_b7RDuLwcI](https://youtu.be/6_b7RDuLwcI) - Rick Astley Never gonna give you up lyrics!!!
+- [https://youtu.be/G8iEMVr7GFg](https://youtu.be/G8iEMVr7GFg) - Never Gonna Give You Up - Otamatone Cover
+- [https://youtu.be/AyOqGRjVtls](https://youtu.be/AyOqGRjVtls) - Kermit is Never Gonna Give You Up
+- [https://youtu.be/nrsnN23tmUA](https://youtu.be/nrsnN23tmUA) - Never Gonna Toad You Up
+- [https://youtu.be/8mkofgRW1II](https://youtu.be/8mkofgRW1II) - Carl Wheezer - Never Gonna Give you Up
+- [https://youtu.be/rAx5LIul1N8](https://youtu.be/rAx5LIul1N8) - "Never Gonna Give You Up" But It's 24 Cartoon Impressions
+- [https://youtu.be/sO4wVSA9UPs](https://youtu.be/sO4wVSA9UPs) - Wii Theme but it's Never Gonna Give You Up
+- [https://youtu.be/rrs0B_LM898](https://youtu.be/rrs0B_LM898) - Pufferfish - Never Gonna Give You Up
+- [https://youtu.be/doEqUhFiQS4](https://youtu.be/doEqUhFiQS4) - Rick Astley - Gonna Give You Up
+- [https://youtu.be/epyRUp0BhrA](https://youtu.be/epyRUp0BhrA) - Rick Astley - NEVER GONNA GIVE YOU UP (Sung by 169 Movies!)
+- [https://youtu.be/uK5WDo_3s7s](https://youtu.be/uK5WDo_3s7s) - Ninja - Never Gonna Give You Up
+- [https://youtu.be/7B--1KArxow](https://youtu.be/7B--1KArxow) - Never Gonna Give You Up on recorder
+- [https://youtu.be/ptw2FLKXDQE](https://youtu.be/ptw2FLKXDQE) - [ENG] Ralph Breaks The Internet Never Gonna Give You Up - Post Credit Song HD
+- [https://youtu.be/E50L-JYWm3w](https://youtu.be/E50L-JYWm3w) - Rick Astley - Never Gonna Give You Up but full of dead memes
+- [https://youtu.be/ByqFY-Boq5Y](https://youtu.be/ByqFY-Boq5Y) - N1ntendo.nl - Just Dance 4 - Wii - Rick Astley - Never Gonna Give You Up
+- [https://youtu.be/E4ihJMQUmUQ](https://youtu.be/E4ihJMQUmUQ) - Rickroll but it sounds like an anime opening
+- [https://youtu.be/cjBHXvBYw5s](https://youtu.be/cjBHXvBYw5s) - Goofy is Never Gonna Give You Up
+- [https://youtu.be/xaazUgEKuVA](https://youtu.be/xaazUgEKuVA) - never gonna give you up for 1 hour
+- [https://youtu.be/BjDebmqFRuc](https://youtu.be/BjDebmqFRuc) - Never Gonna Give You Up Voice Crack
+- [https://youtu.be/Gc2u6AFImn8](https://youtu.be/Gc2u6AFImn8) - Rick Astley - Never Gonna Shoot Your Stars
+- [https://youtu.be/8VFzHYtOARw](https://youtu.be/8VFzHYtOARw) - Never Gonna Give You Up but every time he says never it gets bass boosted
+- [https://youtu.be/cSAp9sBzPbc](https://youtu.be/cSAp9sBzPbc) - Never Gonna Give You Up but all the notes are C
+- [https://youtu.be/Dx5i1t0mN78](https://youtu.be/Dx5i1t0mN78) - Rick Rekt [YTP]
+- [https://youtu.be/Oo0twK2ZbLU](https://youtu.be/Oo0twK2ZbLU) - rickroll'd but the vocals keep getting higher and the instruments keep getting lower
+- [https://youtu.be/lXMskKTw3Bc](https://youtu.be/lXMskKTw3Bc) - Never Gonna Hit Those Notes
+- [https://youtu.be/7z_1E8VGJOw](https://youtu.be/7z_1E8VGJOw) - Never Gonna Give You Up, but every word is a Roblox Username
+- [https://youtu.be/VgojnNgmgVs](https://youtu.be/VgojnNgmgVs) - Rick Astley - Never Gonna Give You Up (but beats 2 and 4 are swapped)
+- [https://youtu.be/5wOXc03RwVA](https://youtu.be/5wOXc03RwVA) - Thurton Waffles-Never Gonna Give You Up
+- [https://youtu.be/8leAAwMIigI](https://youtu.be/8leAAwMIigI) - Rick Astley - Never Gonna Give You Up (Karaoke Version)
