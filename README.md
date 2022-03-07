@@ -100,3 +100,4 @@ Juicy rickroll links
 - [https://youtu.be/VgojnNgmgVs](https://youtu.be/VgojnNgmgVs) - Rick Astley - Never Gonna Give You Up (but beats 2 and 4 are swapped)
 - [https://youtu.be/5wOXc03RwVA](https://youtu.be/5wOXc03RwVA) - Thurton Waffles-Never Gonna Give You Up
 - [https://youtu.be/8leAAwMIigI](https://youtu.be/8leAAwMIigI) - Rick Astley - Never Gonna Give You Up (Karaoke Version)
+- [https://youtu.be/ub82Xb1C8os](https://youtu.be/ub82Xb1C8os) - Rick roll but with a different link so people can’t memorize it (read description)
