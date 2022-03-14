@@ -4,6 +4,7 @@ Juicy rickroll links
 ## URL Shortners
 - [is.gd/hello109](https://is.gd/hello109) - Takes you directly to the offical rickroll music video.
 - [http://bitly.com/98K8eH](http://bitly.com/98K8eH) - Takes you directly to the offical rickroll music video.
+- [https://bit.ly/3tWuyGN](https://bit.ly/3tWuyGN) - Takes you directly to the offical rickroll music video.
 - [https://rr.noordstar.me/instagram-got-banned-in-all-the-countries-cbc9b4bc](https://rr.noordstar.me/instagram-got-banned-in-all-the-countries-cbc9b4bc) or [https://rr.noordstar.me/cbc9b4bc](https://rr.noordstar.me/cbc9b4bc) - Takes you directly to the offical rickroll music video.
 
 ## Dedicated Webpage/websites
