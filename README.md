@@ -2,17 +2,20 @@
 Juicy rickroll links
 
 ## URL Shortners
-- [is.gd/hello109](https://is.gd/hello109) - Takes you directly to the offical rickroll music video.
-- [http://bitly.com/98K8eH](http://bitly.com/98K8eH) - Takes you directly to the offical rickroll music video.
-- [https://bit.ly/3tWuyGN](https://bit.ly/3tWuyGN) - Takes you directly to the offical rickroll music video.
-- [https://rr.noordstar.me/instagram-got-banned-in-all-the-countries-cbc9b4bc](https://rr.noordstar.me/instagram-got-banned-in-all-the-countries-cbc9b4bc) or [https://rr.noordstar.me/cbc9b4bc](https://rr.noordstar.me/cbc9b4bc) - Takes you directly to the offical rickroll music video.
+- https://is.gd/hello109 - Takes you directly to the offical rickroll music video.
+- https://bitly.com/98K8eH - Takes you directly to the offical rickroll music video.
+- https://bit.ly/3tWuyGN - Takes you directly to the offical rickroll music video.
+- https://rr.noordstar.me/instagram-got-banned-in-all-the-countries-cbc9b4bc or https://rr.noordstar.me/cbc9b4bc - Takes you directly to the offical rickroll music video.
+- https://bit.do/YeetYeet - Takes you directly to the offical rickroll music video.
 
 ## Dedicated Webpage/websites
-- [https://riverside.rocks/index.php](https://riverside.rocks/index.php) - it redirects you to the offical music video.
-- [discord.yonle.repl.co](https://discord.yonle.repl.co) - A page that lookin like Discord, but SUS.
-- [kavin.rocks](http://kavin.rocks/) - idk if this will stay forever but it looks like a personal website.
-- [http://free-downloads.glitch.me/](http://free-downloads.glitch.me/) - you can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.
-- [https://stelloio.herokuapp.com/*](https://stelloio.herokuapp.com/*) - Fake URL shortener that just rick rolls.
+- https://riverside.rocks/index.php - It redirects you to the offical music video.
+- https://discord.yonle.repl.co - A page that lookin like Discord, but SUS.
+- https://kavin.rocks - IDK if this will stay forever but it looks like a personal website.
+- http://free-downloads.glitch.me/ - You can specify some words by adding stuff after a # in the url to show up. This is ineffective without autoplay.
+- https://stelloio.herokuapp.com/* - Fake URL shortener that just rick rolls. Replace * with anything and it will work.
+- https://www.thisworldthesedays.com/* - Fake URL shortener that just rick rolls. However, the rickroll is muted by default. Replace * with anything and it will work.
+- https://so-much-pain.glitch.me/do-a-barrel-roll.html - Rolls you around a few times for a final rick roll.
 
 ## Custom rick generators
 - [https://news.rr.nihalnavath.com](https://news.rr.nihalnavath.com) - Generate your own Rick embedded URLs.
