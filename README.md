@@ -16,6 +16,7 @@ Juicy rickroll links
 - https://stelloio.herokuapp.com/* - Fake URL shortener that just rick rolls. Replace * with anything and it will work.
 - https://www.thisworldthesedays.com/* - Fake URL shortener that just rick rolls. However, the rickroll is muted by default. Replace * with anything and it will work.
 - https://www.tomorrowtides.com/* - Fake URL shortener that just rick rolls. However, the rickroll is muted by default. Replace * with anything and it will work.
+- https://www.theraleighregister.com/* - Fake URL shortener that just rick rolls. However, the rickroll is muted by default. Replace * with anything and it will work.
 - https://so-much-pain.glitch.me/do-a-barrel-roll.html - Rolls you around a few times for a final rick roll.
 
 ## Custom rick generators
